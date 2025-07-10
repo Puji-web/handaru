@@ -1,1 +1,1 @@
-# Paksi-Yoni-Permata
+# Puji-Handaru-Wira
